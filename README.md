@@ -1,1 +1,1 @@
-if have any bug contact me
+IF HAVE ANY BUG CONTACT ME ON DISCORD
